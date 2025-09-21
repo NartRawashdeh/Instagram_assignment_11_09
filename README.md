@@ -1,2 +1,2 @@
-# Instagram_assignment_11_09
+# Instagram_Assignment_11_09
 Instagram_assignment_11_09
